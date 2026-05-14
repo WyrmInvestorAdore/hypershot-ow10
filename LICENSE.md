@@ -1,4 +1,4 @@
-#  
+#  ultimate Scripts for hypershot offers the most advanced hypershot Script, with one-hit kill and undetectable. Perfect for dominating any match.
 
 
 
